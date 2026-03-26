@@ -1,7 +1,7 @@
 Wanna scratch link?
 Heres is it! Enjoy it!
 
-A update will be released every 7 or 5 days
+A update will be released anyday!
 https://scratch.mit.edu/projects/1294715021/
 Be advertised after a update!
 
